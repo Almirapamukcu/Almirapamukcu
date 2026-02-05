@@ -64,7 +64,6 @@ Labor Economics and Industrial Relations student at **Kocaeli University**. Spec
 - Youth Development Program — Albaraka Türk
 - Effective Communication Techniques — Boğaziçi Institute
 - Fundamentals of Digital Marketing — Google Digital Academy
-- Language: English (B2 - Upper Intermediate)
 
 </details>
 
